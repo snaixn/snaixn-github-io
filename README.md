@@ -1,1 +1,1 @@
-# snaixn.github.io
+# snaixn-github-io
